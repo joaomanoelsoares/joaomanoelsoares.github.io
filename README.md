@@ -1,1 +1,0 @@
-# joaomanoelsoares.github.io
